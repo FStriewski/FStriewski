@@ -1,2 +1,6 @@
 
-TLDR; Check this https://www.linkedin.com/in/friedrich-s-799074b6/ ✨
+##### TLDR: 
+- I'm mainly active on GitLab these days: https://gitlab.com/FStriewski
+- Stalk me here: https://www.linkedin.com/in/friedrich-s-799074b6/ 
+
+✨✨✨
